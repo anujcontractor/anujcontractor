@@ -1,4 +1,4 @@
-# Hello there 🌌!
+# Hi there 🌌!
 
 ### If you ever want to read a good horror story, pick up a history book.
 
